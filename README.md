@@ -8412,3 +8412,46 @@ Ji Bu
 13 просмотров
   
 
+book read
+
+ Сияние солнца разделяющее 
+
+https://www.facebook.com/share/g/19VTLj9xSP/?mibextid=A7sQZp
+
+https://www.facebook.com/profile.php?id=61591646224853&mibextid=ZbWKwL
+
+https://vk.ru/club240042374
+
+https://vk.ru/club225470311   original rus with foto
+
+https://medium.com/me/stories
+
+https://www.tumblr.com/blog/radisun
+
+https://x.com/PedroNembo55420
+
+https://www.wattpad.com/story/415521095-%D1%81%D0%B8%D1%8F%D0%BD%D0%B8%D0%B5-%D1%81%D0%BE%D0%BB%D0%BD%D1%86%D0%B0-%D1%80%D0%B0%D0%B7%D0%B4%D0%B5%D0%BB%D1%8F%D1%8E%D1%89%D0%B5%D0%B5
+
+https://www.wattpad.com/1653994624
+
+https://www.wattpad.com/myworks/415521095--
+
+https://www.wattpad.com/myworks/415521095-%D1%81%D0%B8%D1%8F%D0%BD%D0%B8%D0%B5-%D1%81%D0%BE%D0%BB%D0%BD%D1%86%D0%B0-%D1%80%D0%B0%D0%B7%D0%B4%D0%B5%D0%BB%D1%8F%D1%8E%D1%89%D0%B5%D0%B5
+
+https://www.wattpad.com/myworks/415521095/write/1653994624
+
+Radiance of the Sun Dividing 
+
+https://www.wattpad.com/story/415302657-radiance-of-the-sun-dividing
+
+https://www.wattpad.com/1652660290-radiance-of-the-sun-dividing-1
+
+https://www.wattpad.com/myworks/415302657-radiance-of-the-sun-dividing
+
+Radiance of the Sun Dividing2 
+
+https://www.wattpad.com/myworks/415314312-radiance-of-the-sun-dividing2
+
+https://www.wattpad.com/story/415314312-radiance-of-the-sun-dividing2
+
+https://www.wattpad.com/1655428534-radiance-of-the-sun-dividing2-359-360
