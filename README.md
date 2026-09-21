@@ -1,6 +1,25 @@
-Radiance of the Sun (original edition of the book) Сияние солнца (оригинал)
-
 radiance of the sun dividing
+
+The Essence of the World Order: Earth and the entire Universe are an isolated "bubble" of the Holy Spirit, operating as a hidden, strictly mathematical computer mechanism governed by digital constants and force lines.
+
+The Illusion of Humanity: Faith, laws, morality, languages, sports, and culture are merely false conventions (the "saber-toothed tiger byte system") and digital noise, hiding the lack of a direct human connection to the true Cosmos.
+
+Man as a Bio-Rotor: A human being is merely a bio-antenna (coded through blood group, Rh factor, and DNA chromosomes) that conducts terrestrial and cosmic currents through itself.
+
+The Mechanics of Victories and Defeats: Any outcome (in life, games, or sports) is instantly determined through polar arithmetic, Unicode name codes, the dynamic Harvest time (constant 12,527,157.534), and bio-hierarchy.
+
+Duality of the Universe: The Cosmos is divided into forces of Joining (God/mass/freedom, slowing down time) and Separation (Devil/void/Chaos, accelerating time and causing glitches).
+
+Cosmic and Evolutionary Cyclicity: Humanity goes through historical and genetic shifts ("Babylons," DNA mutations, crossing stellar clouds and "domes"), steadily moving toward cyclic glaciations and the change of epochs.
+
+The Ultimate Finale: The true evolutionary path lies in relinquishing illusions and passing through the matrix of the Cosmos toward an "anti-atomic" future, without which civilization faces disposal and degeneration.
+
+364. Among the greatest people on Earth: Jesus Christ proposed—reducing everything to the Ten Commandments, law, faith, and love—and was hanged; Muhammad proposed—refining all laws to ensure the salvation of every single grain (DNA, chromosomes, the "victorious number"—meaning connection rather than division, thermonuclear fusion) of life, turning the world into a desert that saves everyone walking toward God; Sigmund Freud posited the existence of the unconscious...
+
+I would propose that there exists only an unconscious, "non-victorious" human existence on Earth—devoid of faith, law, love, or anything else; man is merely a grain of sand whose place on Earth is determined by God’s victorious number and the "losing number" derived from the Earth itself.
+One could attempt to establish reverse contact with God’s victorious number using three rotating spheres incorporating all the variables from the book—along with other necessary variables—to begin solving humanity's problems. By capturing the complete structure of everything—every grain, atom, and "non-atom"—you would receive a precise signal from God’s victorious number, constituting an informational link with the entire universe; other signals in the cosmos—originating from groups smaller than atoms or from the unwritten sections of the Periodic Table—would not function. In this way, you could toggle God’s victorious number on and off, effectively answering a call for help and then disconnecting. Subsequently, the entity initiating the contact—God—would arrive to help you escape Earth. Essentially, everything in the universe is illuminated by this victorious number of God. Alternatively, using several such spheres, you could reverse the orientation of God’s victorious number and transmit a signal to any point in the universe (whether the transmission occurs via the "losing number" or through the timing of the signal's entry into space within the victorious number remains unclear). It is precisely through this victorious number that contact with all entities in the universe and cosmos becomes possible, as generating God’s victorious number on Earth itself is unlikely to succeed. Thus, harmony on Earth will only be achieved once this victorious number has been mastered. That is the path. You see, all the stars in the Milky Way go dark when a planet—one positioned closer to the "winning number"—collides with that number; that is why the stars are distributed so evenly across the cosmos. This means that surrounding us is a countless number of extinguished planets—not just many, but an incredible multitude, so many that... even though they may have scattered into near-dust, the energy within their atoms is still sufficient to power the journey. They couldn't possibly have disintegrated that quickly—they just couldn't have.
+
+
 
 363 It is so difficult to write—such nonsense, even if it is entirely flawed and doomed to failure. But let’s start with the basic meaning: "I believe in God and the Devil." Projecting this onto an object or a person allows one to determine the mass and volume of the laws of faith and language within that individual—though there is an even more complex phrase that defines it better (one I do not know). In other words, this person possesses greater resilience against the "mass volume" (measured in megabytes) found in any given society on Earth—a volume composed of language, faith, laws, and the biological building blocks (DNA/chromosomes) consumed within that society, as well as the volume of resources (subterranean and surface-level across all three spheres, including factors like air density and humidity). All of this is part of the Earth's "losing number"—a figure that encompasses the entire planet, not just a single society. Thus, a society's development (or its degree of "losing"—that is, the likelihood of landing on a "lesser loss") depends on these four parameters, which in turn determine how a state spreads across the Earth's surface.
 In short, the apocalypse arrives when the processing mechanism maximizes the mass and volume of "law" (in megabytes); this mechanism processes the human being too efficiently, rapidly turning the person into earth—earth that can only be governed by the Devil. This represents the final stage before the apocalypse begins; the arrival of the Devil marks the onset of the apocalypse itself. At that point, the entire society takes flight into the sky, rising from the earth like birds. Essentially, a disruption in the volume of consumption (relative to a person's specific blood type and Rh factor)—involving the interplay of language, faith, law, biological products, and resources across the three spheres—shatters the caste-like hierarchy of human blood types, causing the individual's habitat to either contract or expand. In other words, maneuvering between these five parameters creates and destroys the sphere of human habitation on Earth, while increasing the odds of drawing a "losing number." However, a general linguistic computer model has now gained enough "mass" on Earth to potentially wipe out a large portion of the global population—following that "losing number" rule—yet it remains incomplete; it fails to account for the resource volume (in megabytes) of three specific spheres: altitude and air density, the concepts of a benevolent versus a cruel God, and all other parameters governing the expansion or contraction of humanity. Sigmund Freud spoke of the unconscious, effectively positioning himself as "smarter" than Jesus Christ—who proposed only ten laws (measured in bytes) rather than the Bible’s massive volume (measured in megabytes)—but did he surpass the wisdom of those who sought to preserve life in every single grain of sand? Consider this: what if it were a dried-up mixture of flour and water on a mousetrap—something even a tiny mouse couldn't carefully pick off without getting caught? Chemistry and radiation might fail to kill the mouse, whereas the interaction of those five "mass-volume" parameters with the mouse's information system succeeds—implying that these five parameters combined constitute the ultimate weapon on Earth. That is my legendary statement to the world. To grasp what I mean, one must—for instance—examine the volume of information consumed (in megabytes of faith and legal norms) by each caste in India across all five parameters, and then compare this with other societies; only then will an understanding of global events begin to emerge. Thus, a decrease or increase in volume across all five key parameters leads to the dominance or loss of dominance of the human being (with a specific number of chromosomes and DNA)—viewed as an information system—characterized by either minimal or maximal noise (effectively turning into "earth"). This involves imbalances in these five parameters relative to the information contained in human chromosomes, Rhesus factor, blood groups, the unconscious, and so on. Does this, then, constitute a specific rule governing the predominance of one species on Earth over another?
@@ -4398,7 +4417,52 @@ Rated by 0 people
 13 views
   
 
+Сияние солнца разделяющее 
+https://www.facebook.com/share/g/19VTLj9xSP/?mibextid=A7sQZp
+https://www.facebook.com/profile.php?id=61591646224853&mibextid=ZbWKwL
+https://vk.ru/club240042374
+https://vk.ru/club225470311   original rus with foto
+https://medium.com/me/stories
+https://www.tumblr.com/blog/radisun
+https://x.com/PedroNembo55420
+https://www.wattpad.com/story/415521095-%D1%81%D0%B8%D1%8F%D0%BD%D0%B8%D0%B5-%D1%81%D0%BE%D0%BB%D0%BD%D1%86%D0%B0-%D1%80%D0%B0%D0%B7%D0%B4%D0%B5%D0%BB%D1%8F%D1%8E%D1%89%D0%B5%D0%B5
+https://www.wattpad.com/1653994624
+https://www.wattpad.com/myworks/415521095--
+https://www.wattpad.com/myworks/415521095-%D1%81%D0%B8%D1%8F%D0%BD%D0%B8%D0%B5-%D1%81%D0%BE%D0%BB%D0%BD%D1%86%D0%B0-%D1%80%D0%B0%D0%B7%D0%B4%D0%B5%D0%BB%D1%8F%D1%8E%D1%89%D0%B5%D0%B5
+https://www.wattpad.com/myworks/415521095/write/1653994624
+Radiance of the Sun Dividing 
+https://www.wattpad.com/story/415302657-radiance-of-the-sun-dividing
+https://www.wattpad.com/1652660290-radiance-of-the-sun-dividing-1
+https://www.wattpad.com/myworks/415302657-radiance-of-the-sun-dividing
+Radiance of the Sun Dividing2 
+https://www.wattpad.com/myworks/415314312-radiance-of-the-sun-dividing2
+https://www.wattpad.com/story/415314312-radiance-of-the-sun-dividing2
+https://www.wattpad.com/1655428534-radiance-of-the-sun-dividing2-359-360
+
+
 Radiance of the Sun (original edition of the book) Сияние солнца (оригинал)
+
+Суть мироустройства: Земля и вся Вселенная представляют собой изолированный «пузырь» Святого Духа, функционирующий как скрытый, строго математический компьютерный механизм, управляемый цифровыми константами и силовыми линиями.
+
+Иллюзия человечества: Вера, законы, мораль, языки, спорт и культура — это лишь ложные условности (система «укуса саблезубого тигра») и цифровой шум, скрывающие отсутствие у человека прямой связи с истинным Космосом.
+
+Человек как биоротор: Человек — это всего лишь биоантенна (кодируемая через группу крови, резус-фактор и хромосомы ДНК), пропускающая через себя земные и космические потоки.
+
+Механика побед и поражений: Любой исход (в жизни, играх или спорте) мгновенно определяется посредством полярной арифметики, кодов имен в формате Unicode, динамического времени «Жатвы» (константа 12 527 157,534) и биоиерархии.
+
+Дуальность Вселенной: Космос разделен на силы Соединения (Бог/масса/свобода, замедление времени) и Разъединения (Дьявол/пустота/Хаос, ускорение времени и возникновение сбоев).
+
+Космическая и эволюционная цикличность: Человечество проходит через исторические и генетические сдвиги («Вавилоны», мутации ДНК, прохождение сквозь звездные облака и «купола»), неуклонно двигаясь к циклическим оледенениям и смене эпох.
+
+Конечный финал: Истинный эволюционный путь заключается в отказе от иллюзий и прохождении сквозь матрицу Космоса к «антиатомному» будущему, без чего цивилизацию ждет утилизация и вырождение.
+
+364 Величайшие люди на земле Иисус Христос предположил ?уменьшите до десяти заповедей право, веру, любовь во всем на земле? и его повесили, Мухамед предположил ?доведите все законы до спасения каждой песчинки (?днк, хромосомы, победного числа, то есть соединения а не разделения, термоядера?) жизни, чтобы они стали пустыней и спасали каждого идущего к Богу?, Зигмунд Фрейд сказал что есть бессознательное...
+
+предположу что есть только бессознательное беспобедное существование человека на земле вообще без веры, без права, без любви без всего, он лишь песчинка место на земле которой решает победное число Бога и проигрышное число из земли.
+попробовать сделать обратный контакт с победным числом Бога с помощью трёх крутящихся сфер со всеми переменными книги и конечно остальными переменными, чтобы начать решать проблемы человечества. Полную структуру всего каждой песчинки и атома и безатома, так вы получите точный прием от победного числа Бога это и будет информационный контакт со всей вселенной, все остальные сигналы в космосе меньших ниже безатомных групп ненаписанной таблицы Менделеева работать не будут. Таким образом вы сможете преломить победное число Бога включением и выключением, что и будет ответом на звонок помощи и сбросом. потом придут те кто отправляет контакт - Бог и поможет вам выбраться с земли. То есть абсолютно все во вселенной просвечивается этим победным числом Бога. Или же вы сможете с помощью нескольких таких аналогичных сфер развернуть победное число Бога в обратную сторону и подать сигнал в любую точку вселенной (не знаю отправка сигнала через проигрышное число или через время выхода сигнала в космос в победном числе). Именно через победное число возможен единственный контакт во вселенной и космосе со всеми, так как произвести на земле победное число Бога врятли получится. То есть гармония на земле придет только после освоения этого победного числа. Это и будет путь. То есть все звёзды в млечном пути тухнут когда на победное число натакается планета находящаяся ближе к победному числу, поэтому все звёзды распределены так равномерно по всему космосу. То есть во круг нас есть бесчисленное количество потухших планет, которых не много, а невероятно много, так много что.. пускай они разлетелись почти в пыль, но и этой энергии из атомов хватит чтобы осуществлять путешествие. Ну не могли же они распасться так быстро, немогли.
+
+Оценили 0 человек
+Показать список поделившихся
 
 
 363 Как же сложно писать, такой бред, пускай он весь ошибочный, непобедный. Но сам смысл такой начну с самого простого. "Я верю в бога и дьявола" проекция на предмет или человека даёт определить массу объем законов веры языка в этом человеке, но есть ещё более сложная фраза которая ещё лучше определяет (я ее не знаю). То есть этот человек более устойчив к объему массы в мегабайтах в каждом социуме на земле состоящим из объема в мегабайтах языка, объема веры в мегабайтах и объема законов в мегабайтах и объема законов в продуктах из которых они строятся (днк-хромосомы) в мегабайтах потребляемых в этом социуме (и объема рессурсов в земле и на поверхности во всех трёх сферах в мегабайтах в в т.ч. разряженности воздуха и влажности?) - являющимися частью проигрышного числа земли которое единственное опоясывает всю землю! а не этот социум один. То есть развитие (меньшая проигрышность поподание на более меньший проигрышь) и проигрышность социума зависят от этих четырёх параметров а значит в т.ч. и определения распространения государства по поверхности земли.
